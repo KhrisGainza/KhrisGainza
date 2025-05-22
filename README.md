@@ -2,7 +2,7 @@
 
 # Hi, I'm KhrisGainza! 👋
 
-**Aspiring Technologist | Cybersecurity & Science Enthusiast**
+**Aspiring Technologist | Cybersecurity & Chemistry Enthusiast**
 
 ---
 
